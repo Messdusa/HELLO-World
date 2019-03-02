@@ -6,3 +6,7 @@ greetings i am sterling
 i love creative healing an expresion of the arts!
 
 MESSDUSA is my unicorn you know name name
+
+i have alot of names 
+
+who dosnt?
